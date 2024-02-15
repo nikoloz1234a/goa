@@ -1,0 +1,1 @@
+print= v e yo wa im o ry oi ki te nk ai sh ii do ma in ex pa ns io nn yo
